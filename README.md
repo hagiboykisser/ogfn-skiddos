@@ -21,3 +21,15 @@ what is axios>>!!!
 oopsie!!!
 
 ![image](https://github.com/user-attachments/assets/7e55cf73-58c4-4c59-b4e0-2282d702d133)
+
+# Nade!!!
+
+true / false!!!
+
+![image](https://github.com/user-attachments/assets/04466b99-6c15-4618-9126-82bf2a7907a7)
+
+whattt???
+
+![image](https://github.com/user-attachments/assets/0a78fd46-018d-4423-be08-eac796ebce00)
+
+no more nade is a skid we know that but we all love him 💙
